@@ -1,4 +1,4 @@
-# 
+# New leverage trading bot tools for Mac OS | Instant leverage trading bot tools for PC Windows. Featuring liquidity mining and slippage control — optimized for maximum performance on every platform.
 
 
 
